@@ -5,7 +5,7 @@ Thanks to Unilexicon, I am a world renowned expert in knowledge organisation sys
 and thanks to creating Unilexicon for Medicines I get to help pharmacists and pharma companies in their daily job.
 
 When not getting some innocent adrenaline fix in the mountains I am working on my home
-sometimes on web systems and software, typing into the terminal,text editor or consulting on the phone.
+sometimes on web systems and software, typing in the terminal, text editor or consulting on the phone.
 
 Working remotely, used to travel to stay near client sites.
 I am Slovak/Moravian 🇸🇰 of origin, lived in England for 15 years and returned to Slovakia.
