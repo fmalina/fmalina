@@ -9,7 +9,6 @@ sometimes on web systems and software, typing into the terminal,text editor or c
 
 Working remotely, used to travel to stay near client sites.
 I am Slovak/Moravian 🇸🇰 of origin, lived in England for 15 years and returned to Slovakia.
-
 See my [CV](https://unilexicon.com/fm/cv)
 
 Email: fmalina at pm.me \
